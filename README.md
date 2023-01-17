@@ -8,11 +8,11 @@
 
 ## 🔭 What is doing
 
- * Prepare for job
+ * Mobile Security Job
 
 
 ## 📫 Contact me
 
- - e-mail  : [me@ylarod.cn](mailto:me@ylarod.cn)
+ - e-mail  : [842128848@qq.comn](842128848@qq.com)
 
 
